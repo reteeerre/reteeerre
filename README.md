@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...123
 - 📫 How to reach me ...
 - 😄 Pronouns: ...b
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: ...dg
 
 <!---
 reteeerre/reteeerre is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile8876.
