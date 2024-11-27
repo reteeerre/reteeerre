@@ -1,9 +1,8 @@
 - 👋 Hi, I’m @reteeerre
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...123
-- 📫 How to reach me ...
-- 😄 Pronouns: ...b
+- 💞️ I’m looking to collaborate on ...12321
+- 😄 Pronouns: ...b2
 - ⚡ Fun fact: ...dg456
 
 <!---
