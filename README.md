@@ -3,7 +3,7 @@ wer- 👋 Hi, I’m @reteeerre
 - 🌱 I’m currently learning ...55
 - 💞️ I’m looking to collaborate on ...12321wersfd
 - 😄 Pronouns: ...b2
-- ⚡ Fun fact: ...dg456zds
+- ⚡ Fun fact: ...dg456zdsafs
 
 <!---
 reteeerre/reteeerre is a ✨ special ✨ repository because its123 `README.md` (this file) appears on youffr GitHub profile8876.sdasfd
