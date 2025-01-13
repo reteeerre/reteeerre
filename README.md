@@ -2,7 +2,7 @@ wer- 👋 Hi, I’m @reteeerre
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...55
 - 💞️ I’m looking to collaborate on ...12321wersfd
-- 😄 Pronouns: ...b2wre
+- 😄 Pronouns: ...b2wrexcvvcx
 - ⚡ Fun fact: ...dg456zdsafshrt56222288
 8786
 <!---rwe
