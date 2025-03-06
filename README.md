@@ -1,7 +1,7 @@
-cxvcxvcwer- 👋 Hi, I’m @reteeerre
+mhucxvcxvcwer- 👋 Hi, I’m @reteeerre
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...55
-- 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgm
+- 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgmmuhm
 - 😄 Pronouns: ...b2wrexcvvcxsfdsfedfgerrevc54ytyzsdcumj
 - ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcv
 8786dfgsdsf
