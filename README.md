@@ -3,7 +3,7 @@ cxcvcaqqmhucxvcxvcwer- 👋 Hi, I’m @reteeerre
 - 🌱 I’m currently learning ...55assarwt
 - 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgmmuhmxcvcxfewfbffdwerwerr
 - 😄 Pronouns: ...b2wrexcvvcxsfdsfedfgerrevc54ytyzsdcumjfdedee
-- ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcvbgwewrerweewffeetrsggeregr
+- ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcvbgwewrerweewffeetrsggeregrewewewdsds
 8786dfgsdsfffcvbvcbgfhgfgfbgfbfgcv
 <!---rwecvnvb152955+dsfcxvchyw
 reteeerre/reteeerre is a ✨ special ✨ repository because its123 `README.md` (this fi3le) appears on youffr GitrwerHgfbfgub prohrtfile8876dffxcvd.sdasfd
