@@ -1,9 +1,9 @@
 cxcvcaqqmhucxvcxvcwer- 👋 Hi, I’m @reteeerre
 - 👀 I’m interested in ...
-- 🌱 I’m currently learning ...55assarwtrterer
-- 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgmmuhmxcvcxfewfbffdwerwerryjyjy
+- 🌱 I’m currently learning ...55assarwtrtererdfgdfgfd
+- 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgmmuhmxcvcxfewfbffdwerwerryjyjydg
 - 😄 Pronouns: ...b2wrexcvvcxsfdsfedfgerrevc54ytyzsdcumjfdedeej,ghgff,jknnbyujtytfdsss
-- ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcvbgwewrerweewffeetrsggeregrewewewdsds
+- ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcvbgwewrerweewffeetrsggeregrewewewdsdsfdg
 8786dfgsdsfffcvbvcbgfhgfgfbgfbfgcvxcvxcxsd
 <!---rwecvnvb152955+dsfcxvchywcxvcxvcvbbvvv
 reteeerre/reteeerre is a ✨ special ✨ repository because its123 `README.md` (this fi3le) appears on youffr GitrwerHgfbfgub prohrtfile8htrthgf876dfdfgdgdfxcvd.sdasfd
