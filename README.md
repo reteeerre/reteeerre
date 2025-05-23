@@ -2,7 +2,7 @@ cxcvcaqqmhucxvcxvcwer- 👋 Hi, I’m @reteeerre
 - 👀 I’m interested in ...
 - 🌱 I’m currently learning ...55assarwtrtererdfgdfgfd
 - 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgmmuhmxcvcxfewfbffdwerwerryjyjydg
-- 😄 Pronouns: ...b2wrexcvvcxsfdsfedfgerrevc54ytyzsdcumjfdedeej,ghgff,jknnbyujtytfdsss
+- 😄 Pronouns: ...b2wrexcvvcxsfdsfedfgerrevc54ytyzsdcumjfdedeej,ghgff,jknnbyujtytfdsssytjgh
 - ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcvbgwewrerweewffeetrsggeregrewewewdsdsfdg
 8786dfgsdsfffcvbvcbgfhgfgfbgfbfgcvxcvxcxsdgfttrrhythtyhyt
 <!---rwecvnvb152955+dsfcxvchywcxvcxvcvbbvvvdfsdfsdsss
