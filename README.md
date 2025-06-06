@@ -1,6 +1,6 @@
-gkb,hjnmnmcxcvcaqqmhucxvcxvcwer- 👋 Hi, I’m @reteeerre
+gkb,hjnmnmcxcvcaqqmhucxvcxvcwer- 👋 Hi, I’m @reteeerre3212323
 - 👀 I’m interested in ...nhgghng
-- 🌱 I’m currently learning ...55assarwtrtererdfgdfgfd
+- 🌱 I’m currently learning ...55assarwtrtererdfgdfgfd867
 - 💞️ I’m looking to collaborate on ...12321wersfd526ghnrefredgdfhgmmuhmxcvcxfewfbffdwerwerryjyjydg
 - 😄 Pronouns: ...b2wrexcvvcxsfdsfedfgerrevc54ytyzsdcumjfdedeej,ghgff,jknnbyujtytfdsssytjghvdsdvsdsv
 - ⚡ Fun fact: ...dg456zdsafshrt56222288hjmxcvbgfkj,xcvbgwewrerweewffeetrsggeregrewewewdsdsfdg
